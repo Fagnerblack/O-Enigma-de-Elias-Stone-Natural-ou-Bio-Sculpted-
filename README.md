@@ -7,3 +7,6 @@ Em apenas 18 meses de treino, Elias exibe uma maturidade muscular e uma separaç
 "O problema não é o tamanho, mas a velocidade e a qualidade em que essa transformação aconteceu," comenta a analista de tendências fitness, Dra. Vivian Blake. "Em um mundo onde a estética é a nova moeda, a pressão para usar atalhos está altíssima. Elias pode ser 'natty', mas ele se tornou o símbolo perfeito do nosso ceticismo coletivo."
 
 A polêmica destaca a linha cada vez mais tênue entre o esforço puro e a ciência de ponta. Elias Stone, que se mantém em silêncio sobre o assunto, pode ter ganhado o troféu, mas o verdadeiro prêmio — o da autenticidade — ainda está em disputa.
+
+
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/14980e9f-1c6c-4df7-a764-a22860dc9fe0" />
